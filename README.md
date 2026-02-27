@@ -1,0 +1,40 @@
+# Ariana Grande – Moonlight
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+The sun is setting
+And you're right here by my side
+And the movie is playing
+But we won't be watching tonight
+Every look
+Every touch
+Makes me want to give you my heart
+Guess I'm crushing on ya baby
+Stay right where you are cause
+I never knew
+I never knew
+You could hold moonlight in your hands
+Till the night I held you
+You are my moonlight
+Moonlight
+Boy you got me falling
+You are my moonlight
+Moonlight
+I kiss I fingertips
+As I wishing he's all mine
+He's giving me Elvis
+With some James Dean in his eyes
+Every look
+Every touch
+Makes me wanna give him my body
+I be crushin' on you baby
+And I just can't stop cause
+He's so bossy
+He makes me dance
+Wanna sit in the back of whip
+And just cancel my plans
+Sweet like candy
+But he's such a man
+He knows just what it does
+```
